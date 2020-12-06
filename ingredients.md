@@ -12,7 +12,7 @@ salt to taste
 2 tsp Parmesan cheese pwd
 
 *KEY*
-tsp= tablesppon
+tsp= tablespoon
 pwd=powder
 
 
