@@ -13,7 +13,7 @@ Add Parmesan cheese powder and mix well.
 **Step 7**
 Transfer into a serving bowl and serve hot garnished with crushed red chillies and basil leaves.
 
-And my favourite dish is all ready. Want to taste it,try it at home,trust me its too simple and to delicious 
+And my favourite dish is all ready. Want to taste it,try it at home,trust me its too simple and too delicious 
 *Enjoy* 
 
 
